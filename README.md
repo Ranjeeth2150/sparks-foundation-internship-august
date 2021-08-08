@@ -1,1 +1,1 @@
-# sparks-foundation-internship-august
+# Sparks-Foundation-Internship-August
